@@ -29,4 +29,5 @@ Mario Anugraha - 213400011
 
    ![image](https://github.com/user-attachments/assets/692af252-9d3b-480f-8c74-9be892129629)
 
-   ![image](https://github.com/user-attachments/assets/d1c4a1dd-657c-4c6f-846f-73368de1c6ff)
+   ![image](https://github.com/user-attachments/assets/289b0ff9-a432-467c-8354-c6bc3a354854)
+
