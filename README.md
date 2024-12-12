@@ -21,3 +21,12 @@ Mario Anugraha - 213400011
    ![image](https://github.com/user-attachments/assets/cd458c73-059a-49bd-bb73-7e1577a577b5)
 
    ![image](https://github.com/user-attachments/assets/cd8a3920-d135-4b42-957c-b8e050939a3d)
+
+
+5. Edit Data PUT
+
+   ![image](https://github.com/user-attachments/assets/1dee54ae-117a-4a19-978e-24b620f38a14)
+
+   ![image](https://github.com/user-attachments/assets/692af252-9d3b-480f-8c74-9be892129629)
+
+   ![image](https://github.com/user-attachments/assets/d1c4a1dd-657c-4c6f-846f-73368de1c6ff)
